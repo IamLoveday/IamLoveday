@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @IamLoveday
 - 👀 I’m interested in playing football
 - 🌱 I’m currently learning how to use GitHub
-- 💞️ I’m looking to collaborate on Biosec company
+- 💞️ I’m looking to collaborate with Biosec company
 - 📫 How to reach me whatsapp me @ 09029759168
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ....
